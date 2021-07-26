@@ -25,28 +25,44 @@
 </div>
 
 
-Experienced Translator and Copywriter / Arabic-English
-Born as a native Arabic speaker and born again as a native English speaker! I have been working as an Arabic/English translator for quite some time now.
+So, you're looking for an experienced social media content writer? Do you need high-quality articles and blog posts to strengthen your presence on different platforms?
 
-### I have plenty of experience doing translations in either direction and can take on any job you might have! trust me I can :)
+As your personal social media content writer and Copywriter, I can provide you with exemplary content that will be beneficial to your readers. I create written material that is relevant, engaging, and targeted at the specific audience you have. Whatever type of content you need, I am here to help.
 
-Also, I have a quick turnaround as I have a lot of available time to do your job in a correct and professional manner since I try to earn the title of "BEST ARABIC TRANSLATOR IN JORDAN"!
 
-### My services include:
+As an experienced content writer, I specialize in content creation, articles writing, website content writing, social media posts, product description writing, and I also serve as a blog posts writer, while leveraging my Search Engine Optimization (SEO) skills.
 
-All sorts of translations (general/business/medical/technical/legal etc.) from my languages (Arabic and English)
-Proofreading, Editing & Language Analysis in Arabic and English language (Spelling, Grammar, Style, Sentiment, Usage, Meaning, etc.)
-Basic digital services like data processing, text processing or web research.
-Why clients hire me:
+I have covered various topics whether as a B2B or B2C writer in the following industries:
 
-### I work quickly and accurately and give them the attention they deserve!
-Punctual delivery is guaranteed.
-I am interested in specifics and I ask the right questions
-I communicate task-related issues clearly and effectively before, during and after the job
-I am highly reliable and constantly available, with a response time of maximum 12, but mostly less than 3 hours (no matter which time zone)
-I am flexible and adaptive to the needs of the client and the particular requirements of the job
-I deliver affordably, but highest-quality work.
-### Spotify Playing 🎧
+Business,
+Technology
+Cryptocurrency
+Finance
+Business
+Nonprofit organization
+Travel
+Tourism
+Entertainment
+Music
+Politics
+
+I also assist with many areas of social media, such as.
+
+- Organic engagement & growth strategies
+- Content creation: Capturing the product or service in the best way possible
+- Instagram Reels, Tik Tok, and Video Content ideas and content writing
+- Understanding the target audience and their lifestyle interest. Creating balance and contrast with 'selling' or 'promoting' services and giving value to customers.
+- Editing content for social media
+- Caption writing & copywriting
+- Social Media strategy, planning, and content schedules.
+- professional content creation: product and lifestyle
+
+
+As your personal social media content writer and Copywriter, I can provide you with exemplary content that will be beneficial to your readers. I create written material that is relevant, engaging, and targeted at the specific audience you have. Whatever type of content you need, I am here to help.
+
+So if you need someone to craft a beautiful creative story for your e-book, a well-researched article, an inspiring landing page that will convert your visitors into potential leads, or perhaps you just need your website rewritten—contact me today. I assure you, you'll be in good hands!
+
+
 
 [<img src="https://open.spotify.com/track/41GBbgJmNrCRXOmLezn0sP?si=268e3908c50d457e" alt="Majalian Spotify Playing" width="350" />](https://open.spotify.com/user/1zdy50lg5hy33i3f5n88bcrt2)
 [![Watch the video](https://img.youtube.com/vi/T-D1KVIuvjA/maxresdefault.jpg)](https://youtu.be/3eRBFkxgG7g)
