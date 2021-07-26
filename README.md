@@ -64,8 +64,6 @@ So if you need someone to craft a beautiful creative story for your e-book, a we
 
 
 
-[<img src="https://open.spotify.com/track/41GBbgJmNrCRXOmLezn0sP?si=268e3908c50d457e" alt="Majalian Spotify Playing" width="350" />](https://open.spotify.com/user/1zdy50lg5hy33i3f5n88bcrt2)
-[![Watch the video](https://img.youtube.com/vi/T-D1KVIuvjA/maxresdefault.jpg)](https://youtu.be/3eRBFkxgG7g)
 
 [DiscordBadge]: https://img.shields.io/discord/834373930692116531?label=Discord&logo=discord&logoColor=white
 [PatreonBadge]: https://img.shields.io/endpoint.svg?url=https%3A%2F%2Fshieldsio-patreon.vercel.app%2Fapi%3Fusername%3Donelanguage%26type%3Dpledges
