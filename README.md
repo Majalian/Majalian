@@ -61,6 +61,7 @@ I also assist with many areas of social media, such as.
 As your personal social media content writer and Copywriter, I can provide you with exemplary content that will be beneficial to your readers. I create written material that is relevant, engaging, and targeted at the specific audience you have. Whatever type of content you need, I am here to help.
 
 So if you need someone to craft a beautiful creative story for your e-book, a well-researched article, an inspiring landing page that will convert your visitors into potential leads, or perhaps you just need your website rewritten—contact me today. I assure you, you'll be in good hands!
+![204922527_159291512905205_8349977404559133222_n](https://user-images.githubusercontent.com/81928799/127000586-46d44543-ee4d-441e-bc50-a0d3eb475c0b.jpg)
 
 
 
