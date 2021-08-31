@@ -12,17 +12,6 @@
 [Onelang.org](https://onelang.org) |
 [Help wanted](https://github.com/One-Language/One/issues/new)
 
-</div>
-<div align="center">
-
-<!--
-[![Build Status][WorkflowBadge]][WorkflowUrl]
--->
-[![Patreon][PatreonBadge]][PatreonUrl]
-[![Discord][DiscordBadge]][DiscordUrl]
-[![Twitter][TwitterUrl]][TwitterBadge]
-
-</div>
 
 
 So, you're looking for an experienced social media content writer? Do you need high-quality articles and blog posts to strengthen your presence on different platforms?
